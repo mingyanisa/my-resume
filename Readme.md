@@ -1,4 +1,4 @@
-## Ming Yanisa resume
+## Ming Yanisa Resume
 
 Please visit -> https://mingyanisa.github.io/my-resume/
 
